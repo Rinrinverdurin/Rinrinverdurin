@@ -1,0 +1,4 @@
+- Hi, I’m Rin!
+- I’m interested in learn everything i can
+- Pronouns: any pronouns 
+- ⚡ Fun fact: hmm.. like sharks!
